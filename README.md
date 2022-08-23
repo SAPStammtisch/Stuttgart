@@ -1,0 +1,2 @@
+# Stuttgart
+SAP Stammtisch Stuttgart
